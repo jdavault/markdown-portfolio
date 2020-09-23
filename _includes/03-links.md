@@ -1,1 +1,1 @@
-https://github.com/jdavault
+[Joe D](https://github.com/jdavault)
